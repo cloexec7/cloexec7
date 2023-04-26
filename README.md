@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @cloexec7
+- 👀 I’m interested in the programming world.
+- I enjoy jazz and manga ☕ 
+- 🌱 I’m eager to learn new technologies
